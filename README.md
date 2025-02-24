@@ -14,7 +14,7 @@ I'm eager to collaborate on **full-stack web projects, open-source contributions
 
 ## 📫 How to Reach Me  
 - Email: gopalgohel249@gmail.com  
-- LinkedIn: gopalgohel  
+- LinkedIn: [gopalgohel  ](https://www.linkedin.com/in/gopal-gohil-650606278/)
 - GitHub: [github.com/gopalgohil])  
 
 ## 😄 Pronouns  
